@@ -1,3 +1,3 @@
 Nama: Ghina Fadiyah Hr
 
-Kelas: 607062300001
+Kelas: D3IF-47-01
